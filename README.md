@@ -1,1 +1,1 @@
-# jv
+Bom, eu sou o joão vitor, estudante do ensino medío, minha escola se localiza em curitiba, fanny, todo dia apartir das 07 da manhã ja esta liberado entrar na ecola,sou estudante do João de Oliveira Franco e estou no primeiro ano do ensino medío, tenho 16 anos, reprovei 2 anos para estar no primeiro, não gosto muito de estudar mais procuro tentar e também focar em trabalhar, trabalho cerca de 14 horas por dia e estudo umas 4 horas, durmo cerca de 3 horas por noite, e acordo cedo para vir a escola e da escola para o trabalho.-+++++++++
